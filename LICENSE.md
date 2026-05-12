@@ -1,4 +1,4 @@
-# 
+# automatic Scanner for geckoterminal sniper bot | snipe-list-management & liquidity-pool-analysis is the best geckoterminal sniper bot, featuring snipe-list-management and
 
 
 
